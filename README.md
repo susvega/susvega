@@ -5,7 +5,7 @@ Hi, I’m @susvega
 - 🎮 Love video games
 - 🐺 Have a wolfy (husky)
 - 🥕 Friends tell me Susanaoria
-- 🌙 Night owl, I sleep during the day and live at night
+- 🌙 Night owl, sleep during the day and live at night
 - 🍤 Love seafood
 - ✅ Happy to learn
 
