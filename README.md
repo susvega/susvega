@@ -4,6 +4,7 @@ Hi, I’m @susvega
 - 🤓 Work for Ben & Frank
 - 🎮 Love video games
 - 🐺 Have a wolfy (husky)
+- 🐈‍⬛ Have a little kitten
 - 🥕 Friends tell me Susanaoria
 - 🌙 Night owl, sleep during the day and live at night
 - 🍤 Love seafood
