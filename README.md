@@ -3,8 +3,9 @@ Hi, I’m @susvega
 - 💻 Frontend developer in React
 - 🤓 Work for Ben & Frank
 - 🎮 Love video games
+- 🕷️ Love Spider-Man
 - 🐺 Have a wolfy (husky)
-- 🐈‍⬛ Have a little kitten
+- 🐈‍⬛ Have 2 little kittens
 - 🥕 Friends tell me Susanaoria
 - 🌙 Night owl, sleep during the day and live at night
 - 🍤 Love seafood
