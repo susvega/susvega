@@ -1,6 +1,6 @@
 Hi, I’m @susvega
 
-- 💻 Frontend developer in React
+- 💻 Frontend developer
 - 🤓 Work for Ben & Frank
 - 🎮 Love video games
 - 🕷️ Love Spider-Man
